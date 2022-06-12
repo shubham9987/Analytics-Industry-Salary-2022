@@ -1,0 +1,1 @@
+# Analytics Industry Salary 2022 
